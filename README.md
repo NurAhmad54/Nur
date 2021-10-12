@@ -1,0 +1,2 @@
+# Nur
+Hanya lulusan smk 
